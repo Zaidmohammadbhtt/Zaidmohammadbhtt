@@ -2,7 +2,7 @@
 - 👀 I’m interested in python and ethical hacking 
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaboration on instagram 
-- 📫 How to reach me "alamgir_z7" instagram 
+- 📫 How to reach me "techexhaust" instagram 
 - 😄 Pronouns: he/her
 
 <!---
